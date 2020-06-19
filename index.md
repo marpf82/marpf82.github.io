@@ -18,3 +18,9 @@ nimmt jedoch keinen Kontakt mit ihm auf, bis ihn seine Mutter manipuliert, es do
 	* eine Honda Fireblade
 * beherscht mehrere Fremdsprachen
 
+## Was House sagt:
+
+> Nonne: Ich muss mit Ihnen sprechen Dr. House. 
+> Schwester Augustine glaubt an Dinge, die nicht real sind.
+> House: Ich dachte, das wär‘ sowas wie eine Berufsanforderung bei ihnen.
+
