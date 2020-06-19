@@ -9,3 +9,12 @@ einem Lehrkrankenhaus in New Jersey. Er ist Spezialist auf den Gebieten der Neph
 House ist ein Einzelkind, liebt seine Mutter Blythe House, ist jedoch sehr abweisend gegenüber seinem Vater John House, der ihn als Kind misshandelt hat.
 House glaubte zu wissen, dass ein Prediger sein leiblicher Vater sei, und las eine von ihm veröffentlichte Sammlung von Predigten,
 nimmt jedoch keinen Kontakt mit ihm auf, bis ihn seine Mutter manipuliert, es doch zu tun. House findet jedoch heraus, dass der mutmaßliche Vater, der Blythe später heiratete, auch nicht sein leiblicher Vater ist.
+
+## Charaktereigenschaften
+
+* spielt Gitarre
+* mag keine Veränderungen
+* fährt Motorrad
+	* eine Honda Fireblade
+* beherscht mehrere Fremdsprachen
+
