@@ -24,3 +24,4 @@ nimmt jedoch keinen Kontakt mit ihm auf, bis ihn seine Mutter manipuliert, es do
 > Schwester Augustine glaubt an Dinge, die nicht real sind.
 > House: Ich dachte, das wär‘ sowas wie eine Berufsanforderung bei ihnen.
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/Hugh_Laurie_2009.jpg/220px-Hugh_Laurie_2009.jpg"/>
